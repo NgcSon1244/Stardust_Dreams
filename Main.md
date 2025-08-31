@@ -6,4 +6,4 @@
 |![nonsfw](Images/download.png)|
 |3️⃣ Luật Danh Tính 🌠 +Tôn trọng tên, avatar và tác phẩm cá nhân ✏️🖼️. Giả mạo = thiên thạch va chạm ❌☄️|
 |![fireinthehole](Images/who-even-decided-that-fire-in-the-hole-was-the-normal-face-v0-3a7o2ti1dg9c1.jpeg)
-|
+
